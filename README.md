@@ -4,7 +4,6 @@
 - 👯 I’m looking to collaborate on anything:)
 - 🤔 I’m looking for help with also anything...
 - 📫 How to reach me: curtislingwall@gmail.com
-- 😄 Pronouns: he/him
 - ⚡ Fun fact: I am loving cs so far!
 
 <!--
